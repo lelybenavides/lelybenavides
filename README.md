@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lelybenavides
 - 👀 I’m interested in sport
-- 🌱 I’m currently learning biginnen 
+- 🌱 I’m currently learning beginner
 - 💞️ I’m looking to collaborate not yet
 - 📫 new hier :)
 
